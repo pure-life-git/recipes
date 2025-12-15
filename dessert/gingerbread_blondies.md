@@ -2,17 +2,17 @@
 
 ## Ingredients
 
-- 1 c butter
-- 1 1/2 c brown sugar (300g)
-- 2 tbsp molasses
+- 1 c butter (226g)
+- 1 1/2 c brown sugar (320g)
+- 2 tbsp molasses (43g)
 - 1 tbsp fresh ginger, finely grated
 - 2 large eggs
-- 2 tbsp vanilla extract
+- 2 tbsp vanilla extract (28g)
 - 2 c flour (240g)
-- 2 tsp baking powder
+- 2 tsp baking powder (8g)
 - 2 tsp ground ginger
 - 1 tsp ground cinnamon
-- 3/4 tsp salt
+- 3/4 tsp salt (2g)
 - 1/4 tsp ground allspice
 - 1/4 tsp black pepper
 - 1/8 tsp ground cloves

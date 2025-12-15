@@ -4,14 +4,14 @@
 
 - 2 c sugar (400g)
 - 2 navel oranges
-- 2 tsp vanilla extract
+- 2 tsp vanilla extract (9g)
 - 1/4 tsp fennel seeds, lightly toasted, ground
-- 1/2 tsp salt
-- 1 c butter, room temp
+- 1/2 tsp salt (1g)
+- 1 c butter, room temp (226g)
 - 2 egg yolks, room temp
 - 2 c flour (240g)
 - 1/4 c semolina flour (50g)
-- 2 tsp baking powder
+- 2 tsp baking powder (8g)
 
 ## Procedure
 

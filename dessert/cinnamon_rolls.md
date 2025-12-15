@@ -7,14 +7,14 @@
 - 1 large egg
 - 1 envelope instant yeast
 - 1/3 c granulated sugar (70g)
-- 1 tbsp salt
-- 1/2 c butter, room temp
-- 1/2 c butter
-- 1 c brown sugar
+- 1 tbsp salt (8g)
+- 1/2 c butter, room temp (113g)
+- 1/2 c butter (113g)
+- 1 c brown sugar (213g)
 - 2 tbsp ground cinnamon
-- 2 tbsp heavy cream
+- 2 tbsp heavy cream (28g)
 - 1/2 tsp salt
-- 4 tbsp butter, room temp
+- 4 tbsp butter, room temp (57g)
 - 8 oz cream cheese, room temp
 - 1 1/4 c powdered sugar (150g)
 - 1 tsp lemon zest

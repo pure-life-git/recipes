@@ -2,15 +2,15 @@
 
 ## Ingredients
 
-- 1/2 c butter, room temp
-- 1/3 c brown sugar (75g)
-- 3/4 tsp salt
+- 1/2 c butter, room temp (113g)
+- 1/3 c brown sugar (71g)
+- 3/4 tsp salt (2g)
 - 1 egg yolk
-- 1 tsp vanilla extract
+- 1 tsp vanilla extract (5g)
 - 1 c flour (120g)
-- 1/3 c cocoa powder (30g)
+- 1/3 c cocoa powder (28g)
 - 2 egg whites
-- 6 tbsp sugar (85g)
+- 6 tbsp sugar (75g)
 - 1/2 tsp peppermint extract
 
 ## Procedure

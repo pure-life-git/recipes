@@ -3,16 +3,16 @@
 ## Ingredients
 
 - 6 oz cream cheese, chilled
-- 1/2 c powdered sugar (60g)
+- 1/2 c powdered sugar (57g)
 - 1 egg yolk
-- 2 tsp vanilla extract
+- 2 tsp vanilla extract (9g)
 - 2 1/2 c flour (300g)
 - 1 tbsp ground ginger
 - 2 tsp ground cinnamon
-- 1 tsp baking soda
+- 1 tsp baking soda (6g)
 - 1/2 tsp black pepper
-- 3/4 tsp salt
-- 10 tbsp butter, softened
+- 3/4 tsp salt (2g)
+- 10 tbsp butter, softened (141g)
 - 1 c sugar (200g)
 - 1 egg
 - 1/2 c crystallized ginger, finely chopped (62g)
