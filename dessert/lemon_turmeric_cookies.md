@@ -11,7 +11,7 @@
 - 1 tsp vanilla extract
 - 3/4 tsp baking soda
 - 1 1/2 c flour (180g)
-- 3/4 c powdered sugar (90g)
+- 3/4 c powdered sugar (85g)
 
 ## Procedure
 
